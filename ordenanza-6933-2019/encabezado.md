@@ -1,0 +1,20 @@
+Ordenanza Nº6933/19
+Ordenanza Nº 6933/19
+Campana, 23/09/2019
+VISTO:
+La Ley General de Ambiente de la Nación N.º 25675, y la Ley 14.343 de la Provincia de Buenos Aires de 2012, las cuales regulan los pasivos ambientales; y
+CONSIDERANDO:
+Que las normas antes mencionadas brindan los presupuestos mínimos para la gestión del ambiente, y establecen procedimientos y mecanismos adecuados para la recomposición de los daños causados por la contaminación ambiental;
+Que la Ley 14.343 de la Provincia de Buenos Aires de 2012, regula los pasivos ambientales y genera la obligación a las empresas que cierren sus puertas de realizar una auditoría de cierre, consistente en la realización de un estudio de un sitio por parte de un profesional habilitado con el propósito de establecer el estado ambiental final del sitio y repararlo en el caso de daño ambiental;
+Que los/as ciudadanos/as tienen derecho de gozar de un ambiente sano y equilibrado y la necesidad de preservar y proteger la calidad del aire y evitar la contaminación atmosférica que afecta la salud humana y los ecosistemas;
+Que en los últimos años se han desarrollado distintas acciones en vistas de generar la regulación, promoción de buenas prácticas ambientales y el control de la contaminación, en función de preservar la calidad ambiental en la que habitan los ciudadanos;
+Que la Ley Nacional 25675 establece el principio de responsabilidad para los generadores de efectos degradantes del ambiente, actuales o futuros, los cuales, según dicha normativa, deberán responder a los costos de las acciones preventivas y correctivas para la recomposición del daño;
+Que a nivel Provincial, la Ley 14.343, estableció un antecedente insoslayable en relación al control del impacto ambiental de las actividades industriales, al obligar a los titulares de actividades productivas a realizar un estudio e informe de evaluación de impacto ambiental;
+Que el marco normativo local, fija criterios en general para la habilitación de las empresas, y no así la regulación y obligatoriedad de control de los daños producidos al medio ambiente o contaminación que quedan como residuo, tras el cierre o traslado de establecimientos productivos, con consecuencias negativas para la ciudadanía y para el medioambiente;
+Que en distintas Localidades y en la Provincia de Buenos se han generado normativas que se ocupan de regular los pasivos ambientales, a los fines de reparar los daños ambientales producidos por episodios de contaminación o por el asentamiento de actividades que afectaron al medio ambiente, con riesgos para la salud de la población y para ecosistema;
+Que en ese marco, se puede citar como antecedentes a las Ordenanzas Nº 3229 de 2005 de Venado Tuerto y 12.260 de 2013 de la Ciudad de Córdoba, y a la Ley 14.343 de la Provincia de Buenos Aires de 2012, las cuales generaron la obligación de las empresas que cierren sus puertas a realizar una auditoría de cierre, consistente en la realización de un estudio de un sitio por parte de un profesional habilitado con el propósito de establecer el estado ambiental final del sitio;
+Que según las normativas vigentes, se denomina pasivos ambientales al conjunto de daños ambientales, en términos de contaminación del agua, del suelo, del aire, del deterioro de los recursos naturales y de los ecosistemas, producidos por cualquier tipo de actividad pública o privada durante su funcionamiento ordinario o por hechos imprevistos a lo largo de su historia, que constituyan un riesgo permanente y/o potencial para la salud de de la población, el ecosistema circundante y la propiedad, aun cuando ésta haya sido abandonada por el propietario y/o responsable;
+Que es necesario controlar los pasivos ambientales, a fines de reparar los daños ambientales y la contaminación de los sitios en donde se emplazaron actividades productivas, y de asegurar el derecho que tienen los ciudadanos a vivir en un entorno ambientalmente saludable;
+POR ELLO:
+EL HONORABLE CONCEJO DELIBERANTE EN EJERCICIO DE LAS FACULTADES QUE LE SON PROPIAS, SANCIONA LA SIGUIENTE:
+ORDENANZA
