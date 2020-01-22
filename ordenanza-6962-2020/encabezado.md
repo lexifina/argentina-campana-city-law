@@ -1,0 +1,19 @@
+Ordenanza Nº6962/20
+Ordenanza Nº 6962/20
+Campana, 03/01/2020
+VISTO:
+El expediente Nº 4016 – 8199-0-2013; y
+CONSIDERANDO:
+Que a fs. 55, 80, 93, 114 y 135 la Asociación Civil “GRUPO ESPERANZA” solicita exención de pago de la Tasa por Inspección de Seguridad e Higiene, Derechos de Habilitación y de Oficina respecto de los años 2015, 2016 y 2018;
+Que en el mismo lucen los antecedentes de distintos actos administrativos mediante los cuales en diferentes ejercicios se le otorgó ese beneficio;
+Que se adjuntan a fs. 76/77 la Ordenanza N° 6349/2015 y a fs. 112 el Decreto N° 1263/2017;
+Que la Dirección de Rentas, Tributo y Fiscalización a fs. 137 manifiesta que, efectuado el análisis del presente expediente no existe objeciones sobre el pedido solicitado por el contribuyente, cumpliendo este con lo requerido por la Ordenanza Fiscal N° 6501/2016 y sus modificaciones según Título XV – de las exenciones – artículo 96° y 97° “Eximición por el pago” e “Inicio de la Exención”, que se encuentra cumpliendo con la Ordenanza Fiscal N° 6601/2017 artículo 3° e informa deuda de los años 2015, 2016 y 2018;
+Que a fs. 141 se agrega Acta de Inspección donde se verifica el destino y funcionamiento del inmueble declarado;
+Que la Dirección Entidades de Bien Público a fs. 149 informa que, la Asociación Civil denominada “Grupo Esperanza Asociación Civil” se encuentra inscripta como Entidad de Bien Público bajo el N° 269 Bis, con su respectiva documentación actualizada a la fecha;
+Que la Dirección General de Asuntos Jurídicos y Administrativos a fs. 156 dictamina que, respecto de la solicitud de exención formulada por el Grupo Esperanza a fs. 55, 80, 93, 114 y 135 del expediente municipal N° 4016-8199/2013, en relación a la Tasa de Seguridad e Higiene y de los Derechos de Habilitación y de Oficina, en virtud de ello, teniendo en cuenta lo informado por la Dirección de Rentas, Tributo y Fiscalización a fs. 137, donde manifiesta que no existen objeciones al respecto y no existiendo conflicto normativo, esa Dirección General entiende que la exención solicitada se encuentra prevista en la Ordenanza Fiscal N° 6501/2016 (t.v.), artículos 96° y 97°, destacando que habiendo el interesado solicitado oportunamente a fs. 135 la exención por los años 2015, 2016 y 2018, corresponde redactar el Proyecto de Ordenanza respectivo que materialice la medida para que eventualmente el beneficio sea otorgado por el Honorable Concejo Deliberante, por tratarse a la fecha de deudas correspondientes a ejercicios anteriores;
+Que luce Resolución N° 2019-31-E-MUNICAM-SEYH de la Secretaría de Economía y Hacienda a fs. 163/165 mediante la cual se otorgó a instituciones varias de nuestra Ciudad, incluida la Asociación Civil “GRUPO ESPERANZA”, exención por el año 2019 de las Tasas: por Barrido, Limpieza y Conservación de la Vía Pública y Servicios Generales, por Inspección de Seguridad e Higiene, y de los Derechos por Publicidad y Propaganda;
+Que la Dirección de Rentas, Tributo y Fiscalización a fs. 168 manifiesta que, atento la nota de fs. 167, por el cual solicita exención de la Tasa Habilitación y Derechos de Oficina, Legajo 12077-0 años 2017 y 2018, informa que efectuado el análisis del presente expediente no existe objeciones sobre el pedido solicitado por el contribuyente, cumpliendo este con lo requerido por la Ordenanza Fiscal Nº 6501/2016 y sus modificaciones según Título XV – de las exenciones – artículo 96° y 97° “Eximición por el pago” e “Inicio de la Exención”, que se encuentra cumpliendo con la Ordenanza Fiscal 6601/2017 artículo 3° e informa la deuda de los años 2017 y 2018 agregando el listado a fs. 169;
+Que la Asociación Civil “GRUPO ESPERANZA” a fs. 167 solicita mediante nueva nota la exención de los Derechos de Habilitación y de Oficina correspondiente a los años 2017 y 2018;
+POR ELLO:
+EL HONORABLE CONCEJO DELIBERANTE, EN EJERCICIO DE LAS FACULTADES QUE LE SON PROPIAS, SANCIONA LA SIGUIENTE:
+ORDENANZA
