@@ -1,0 +1,5 @@
+Artículo 1°. - Se considerarán edificios especiales alcanzados por el presente Capítulo:
+Los edificios existentes y a construir destinados a consultorios médicos, laboratorios, centros sanitarios de cualquier escala, clínicas, sanatorios, institutos de diagnóstico, consultorios externos, centros de tratamientos y recuperación de la salud y toda otra instalación dedicada específicamente a prestar servicios de atención a la salud de la población.
+Los edificios existentes y a construir dedicados al alojamiento temporario en todas sus formas, alojamientos, hoteles, apartamentos hoteles, y todos aquellos que cumplan con lo establecido en la Ley Nacional de hotelería 18.828/70.
+Los edificios existentes y a construir dedicados a la educación en todos sus niveles sean estos públicos o privados.
+Los edificios existentes y a construir que pertenezcan a instituciones deportivas o sociales, con personería jurídica, inscriptas en el registro de entidades del municipio, y en el Registro de personas jurídicas de la Provincia de Buenos Aires.

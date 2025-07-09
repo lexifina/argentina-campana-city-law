@@ -1,0 +1,13 @@
+ARTÍCULO 2°.- Comuníquese al Departamento Ejecutivo, a sus efectos.-
+Dada en la Sala de Sesiones del Honorable Concejo Deliberante a los 5 días del mes de junio de 2025.-
+CRISTINA G. DEL MARMOL JULIA KARINA SALA
+SECRETARIA PRESIDENTE
+Honorable Concejo Deliberante HONORABLE CONCEJO DELIBERANTE
+REGISTRADA BAJO EL N° 7728
+Campana, 13 de junio de 2025.-
+Promulgada por DECTO-2025-476-E-MUNICAM-INT, del 13 de junio de 2025.-
+Cúmplase, Regístrese y Publíquese.
+Dra. Lucia del Carmen Schirripa SEBASTIAN ABELLA
+Secretaria Interina Intendente Municipal
+de la Secretaria Técnica,
+Administrativa y Legal
