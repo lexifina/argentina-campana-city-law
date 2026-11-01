@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-campana",
+  "code": "AR-B-CAMPANA",
+  "name": "Campana",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-campana-city-law",
+  "build": "built: municipal ordinances (209 ordinances, 209 versions) from https://sibom.slyt.gba.gob.ar/cities/18",
+  "language": "es",
+  "sources": 1
+}
